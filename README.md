@@ -1,1 +1,1 @@
-# rebeka-p.github.io/btaa2026
+# rebeka-p.github.io
